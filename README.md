@@ -10,7 +10,7 @@ Artikel ini akan mengupas tuntas strategi kemenangan yang membuat WARRIORS89 men
 
 Mengapa "Warriors"? Seorang prajurit tidak masuk ke medan pertempuran tanpa persiapan. Begitu pula di platform WARRIORS89. Angka '89' sering dikaitkan dengan kontinuitas dan kelimpahan, namun bagi komunitas kami, itu adalah simbol dari high-level performance.
 
-Strategi kemenangan dimulai dari filosofi dasar: **Disiplin, Analisis, dan Eksekusi.** Tanpa ketiga elemen ini, seorang pemain hanyalah penonton. Di WARRIORS89, kami menyediakan ekosistem yang mendukung pertumbuhan pemain dari level pemula hingga menjadi veteran yang disegani.
+Strategi kemenangan dimulai dari filosofi dasar: **Disiplin, Analisis, dan Eksekusi.** Tanpa ketiga elemen ini, seorang pemain hanyalah penonton. Di WARRIORS89, kami menyediakan ekosistem yang mendukung pertumbuhan pemain dari level pemula hingga menjadi veteran disegani.
 
 ---
 
